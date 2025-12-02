@@ -76,3 +76,10 @@ List of Tamil writers:
 ( List of Tamil writers: )
 Credits / source -https://sasitharan.blogspot.com/2011/09/tamil-writerss-websites-blogs.html
 
+Sol Vazhi Payanam
+
+Bava Chelladurai
+
+https://youtu.be/azeGWeVlV4I?si=pX90JIvPhm1jsY4n
+
+
