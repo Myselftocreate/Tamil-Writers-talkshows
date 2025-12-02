@@ -73,3 +73,6 @@ List of Tamil writers:
 | A. Marx                 | [Link](http://amarx.org/) |
 | Iyyappan Madhavan       | [Link](http://iyyappamadhavan.blogspot.com/) |
 
+( List of Tamil writers: )
+Credits / source -https://sasitharan.blogspot.com/2011/09/tamil-writerss-websites-blogs.html
+
