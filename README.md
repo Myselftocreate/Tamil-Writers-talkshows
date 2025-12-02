@@ -7,7 +7,7 @@
 
 ## PT Literature
 
-[Link] (https://www.youtube.com/playlist?list=PLZDwmVzNO_AY4lenGcLal8FdYuMky-g8U)
+[Link](https://www.youtube.com/playlist?list=PLZDwmVzNO_AY4lenGcLal8FdYuMky-g8U)
 
 List of Tamil writers:
 
@@ -74,12 +74,12 @@ List of Tamil writers:
 | Iyyappan Madhavan       | [Link](http://iyyappamadhavan.blogspot.com/) |
 
 ( List of Tamil writers: )
-Credits / source - [Link] (https://sasitharan.blogspot.com/2011/09/tamil-writerss-websites-blogs.html)
+Credits / source - [Link](https://sasitharan.blogspot.com/2011/09/tamil-writerss-websites-blogs.html)
 
 Sol Vazhi Payanam
 
 Bava Chelladurai
 
-[Link] (https://youtu.be/azeGWeVlV4I?si=pX90JIvPhm1jsY4n)
+[Link](https://youtu.be/azeGWeVlV4I?si=pX90JIvPhm1jsY4n)
 
 
